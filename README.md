@@ -1,0 +1,2 @@
+# premium-yoke-drive-001-yoke-drive-shaft-universal-j
+Tired of losing track of custom yoke drive shafts and universal joint dimensions mid-project? Stop scrambling through loose notes and spreadsheets.  The Yoke Drive Shaft &amp; Universal Joint Craft Workshop Notion template replaces chaotic paper trails with a single source of truth for every build. It streamlines parts inventory, assembly steps, and co
